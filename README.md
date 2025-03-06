@@ -1,1 +1,1 @@
-Average temperatures of Seoul
+
